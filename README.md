@@ -2,7 +2,8 @@
 ## **Engineer** || **Teacher** || **Researcher**
 - An **Electrical and Electronic Engineering (EEE)** graduate from **Bangladesh University of Engineering and Technology (BUET)**
 - Working as a **Lecturer** @ **Computer Science and Engineering (CSE), Brac University**
-- Looking for Funded PhD Positions for Fall 2025
+- Continuing **M.Sc.** (Part-time) in **EEE** @ **BUET**
+- Looking for Funded **PhD** Positions for **Fall 2025**
 - Feel free to reach out to me at: farhan.eee15.buet@gmail.com
 
 <!---
